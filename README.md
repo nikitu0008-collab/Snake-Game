@@ -28,7 +28,7 @@
 ---
 ## 📹 Видео-демонстрация
 
-https://github.com/user-attachments/assets/06c3aea3-62b2-41b5-9c7f-49b5bf23488
+https://github.com/user-attachments/assets/14f05279-5a0d-48f0-bcf2-d05f602e3693
 
 ---
 
